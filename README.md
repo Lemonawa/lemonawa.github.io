@@ -1,1 +1,1 @@
-Moved to https://www.lemonawa.xyz
+Moved to https://lemonawa.xyz
